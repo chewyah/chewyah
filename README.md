@@ -8,4 +8,5 @@ what am i supposed to even write here? I honestly just wanted to add an image.
 - I have my requests turned off, if you wanna be my friend um- just don't. (srsly tho, i'll friend you if I start feeling more comfy around ya!)
   If I don't friend you though, that doesn't 100% mean i dont wanna friend ya, i could just be shy, alr? </3
 - I'm not ignoring you if im not responding! I'm most likely offtab, so please, w2i!! I'll reply when i see it
+- I don't do well in large crowds btw </3 I get overwhelmed easily 
 ![download (39)](https://github.com/chewyah/chewyah/assets/155095987/584c745f-47a0-4667-bf7e-d02966217249)[Uploading download (39).jpg…]()
