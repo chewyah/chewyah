@@ -13,6 +13,7 @@ what am i supposed to even write here? I honestly just wanted to add an image.
 - I'm not ignoring you if im not responding! I'm likely offtab, so please, w2i!! I'll reply when i see it
 
 - kunichuu/tetchuu liker
+  (i like other ships too, but i hardly see kunichuu or tetchuu shippers)
 
 - -----------------------
 -  interests: Bungo Stray Dogs, Lycoris Recoil, Marvel, YTTD, SK8 The Infinity, and more but i'm too lazy to type them all out.
