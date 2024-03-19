@@ -11,6 +11,6 @@ what am i supposed to even write here? I honestly just wanted to add an image.
 
 - I'm not ignoring you if im not responding! I'm most likely offtab, so please, w2i!! I'll reply when i see it
 
-- kunichuu/tetchuu like
+- kunichuu/tetchuu liker
 
 ![download (39)](https://github.com/chewyah/chewyah/assets/155095987/584c745f-47a0-4667-bf7e-d02966217249)[Uploading download (39).jpg…]()
