@@ -14,6 +14,6 @@ what am i supposed to even write here? I honestly just wanted to add an image.
 - kunichuu/tetchuu liker
 
 - -----------------------
--  interests: Bungo Stray Dogs, Lycoris Recoil, Marvel, YTTD, and more but im too lazy to type them all out
+-  interests: Bungo Stray Dogs, Lycoris Recoil, Marvel, YTTD, SK8 The Infinity, and more but i'm too lazy to type them all out.
 
 ![download (39)](https://github.com/chewyah/chewyah/assets/155095987/584c745f-47a0-4667-bf7e-d02966217249)[Uploading download (39).jpg…]()
