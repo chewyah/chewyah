@@ -1,6 +1,6 @@
 what am i supposed to even write here? I honestly just wanted to add an image.
 - 17
-- he/him is fine
+- he/him is fine, so is she/her
 - pronoun page coming soon if i dont forget (i'll forget)
 - im not on pt a lot, so whisp and lmk if im talking to problematic ppl ig
 - i am incredibly shy sometimes, and other times i can be more outgoing. pls don't assume im upset if im quiet
